@@ -56,17 +56,9 @@ Things about me <img width="20" height="20" alt="image" src="https://github.com/
 
 7  .  i love to drawing and grinding ![a6931f90](https://github.com/user-attachments/assets/b16fb16d-c28f-4fe8-853f-a0cae1f5d797)
  
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/0d4409b4-2478-4875-9692-ebb1f4a2e554" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/0d4409b4-2478-4875-9692-ebb1f4a2e554" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/0d4409b4-2478-4875-9692-ebb1f4a2e554" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/0d4409b4-2478-4875-9692-ebb1f4a2e554" />
 
-
-
-
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/0d4409b4-2478-4875-9692-ebb1f4a2e554" />
-
-
- <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f4ac715f-cf6a-4f93-96f1-52e1f41dc8e7" />
 
  special thanks to my twin helped me with this  !  ![ee1d0068](https://github.com/user-attachments/assets/1dabeaa7-25d4-4371-8872-c93ea7f7dfb1)
 
-
-
-
+![197edf22-275c-4dc0-ac95-926f975eccca](https://github.com/user-attachments/assets/43832925-ce4f-4536-953c-46f1144686e0)
