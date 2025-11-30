@@ -24,7 +24,31 @@
 
 5  .  please DO NOT spam whisp on me because it's ANNOYING. <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/1e0b0e08-a415-44f3-a787-4701f729548e" />
 
-
-
 6  .  i'm a slow respond person so be patient with me when my status is away / busy ! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7f48da18-c2da-43ee-9468-d14b9e9adda9" />
+
+
+Things about me <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/415c7a05-8884-4f47-b12c-49eac24f1041" />
+
+
+
+1  . I have social anxiety sometimes <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/58ac7f25-e176-4510-adf7-1992aaa691d6" /><img width="18" height="18" alt="image" src="https://github.com/user-attachments/assets/4921ee9e-7576-4c1d-be6d-4259bca31f03" />
+
+
+2  .  I don't really like my real life friends , they're sh!t <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/976064b1-8d9f-44d0-9715-9fdb22ee1c2f" />
+
+
+3  .  I love animals !!  especially cats <img width="46" height="20" alt="image" src="https://github.com/user-attachments/assets/9ce573c3-d0ed-41f9-bc7d-4da28258f558" />
+
+
+4  . i like some fictional character, sometimes man sometimes girl  ( IM STRAIGHT. i just like their design! )  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/52fc7c70-4a9b-48b3-8ba4-344c7f6902a6" />
+
+
+
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/0d4409b4-2478-4875-9692-ebb1f4a2e554" />
+
+
+
+well then thank you ! <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f4ac715f-cf6a-4f93-96f1-52e1f41dc8e7" />
+
+
 
