@@ -7,8 +7,9 @@
 -   when i hangout with my friend ( A.K.A @unmated002 ) it's fine to int , ( they could be not interested or something. )
 -   do not waiting me when my status is away . ( because who knows i will back? )
 -   if my status away/busy please DO NOT interact ( unless you're my close-friend ) because i don't want to waste you guys time on waiting me
--   i could be friendly and sensitive sometimes
+-   i could be friendly and sensitive sometimes <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/bccdba9c-23bd-49d0-95f5-12df8799b2a3" />
+
 -   im a slow respond so be patient but if im away please i say again DO NOT waste your time on me.
 -      >>  maybe that's all , thanks for lookin' at ts and goodluck ^ _ ^
 
-![4e984d05-dd1e-43e5-8484-4d69b134c33e](https://github.com/user-attachments/assets/aaab2f42-682a-440d-aeee-9f380a3f045d)
+
