@@ -19,7 +19,7 @@
 
 3  .  yes , i can be friendly sometimes but can be sensitive <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/e9ece527-6ada-46c6-a205-b40ceb96200d" />
 
-4  .  if you has sexualized pony PLEASE do not interact with me  ( this is targeted to idn server. ) because i'm not feel comfortable around it <img width="58" height="20" alt="image" src="https://github.com/user-attachments/assets/670abfdd-fcd1-4fd0-a953-9b18c9164e39" />
+4  .  if you has sexualized pony PLEASE do not interact with me and get tf away from me ( this is targeted to idn server. ) because i'm not feel comfortable around it <img width="58" height="20" alt="image" src="https://github.com/user-attachments/assets/670abfdd-fcd1-4fd0-a953-9b18c9164e39" />
 
 
 5  .  please DO NOT spam whisp on me because it's ANNOYING. <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/1e0b0e08-a415-44f3-a787-4701f729548e" />
