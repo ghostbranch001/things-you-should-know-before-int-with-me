@@ -8,10 +8,11 @@
 <img width="150" height="46" alt="image" src="https://github.com/user-attachments/assets/067942c9-f237-4c29-b7fa-3aa41671ecf2" /><img width="150" height="46" alt="image" src="https://github.com/user-attachments/assets/1215d061-7554-41a9-bb11-8bfbb15ba5f8" />
 
 
-
-
-
                                                                   its june / juniper
+
+  - <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/342797ed-6d7e-40b8-bd72-1dd234bd672a" />
+ things you should know before interact me .  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/a0816403-3c6e-4738-96e7-511fc9f684fc" />
+
 
 1  .  please do not interact me when my name has  >  Dni , Dniuf , Dniucf. <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/904a3bde-fc72-4966-bc6a-26edd0afb736" />
 
