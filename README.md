@@ -32,7 +32,6 @@
 <img width="230" height="30" alt="image" src="https://github.com/user-attachments/assets/039fd004-4eb3-4f37-aee0-a0b74cdabb4c" />
 <img width="230" height="30" alt="image" src="https://github.com/user-attachments/assets/68ce09e4-e0ce-4888-91b9-52e784701208" />
 <img width="230" height="30" alt="image" src="https://github.com/user-attachments/assets/4b596a30-b78d-4af2-a46f-fa22108fd2e2" />
-<img width="230" height="30" alt="image" src="https://github.com/user-attachments/assets/c2b67654-0c1f-4f0e-acec-723502823fb3" />
 
 
 
@@ -51,7 +50,10 @@ Things about me <img width="20" height="20" alt="image" src="https://github.com/
 
 4  .  i like some fictional character, sometimes man sometimes girl  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/52fc7c70-4a9b-48b3-8ba4-344c7f6902a6" />
 
-5  .  I'm by they / them / it / its only ! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/701f6879-a36a-4076-8267-f2b84f3c2f55" />
+5  .  I'm by they / them / it only ! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/701f6879-a36a-4076-8267-f2b84f3c2f55" />
+
+6  .  Im a minor so please don't be weird. ![ee1d0068](https://github.com/user-attachments/assets/1dabeaa7-25d4-4371-8872-c93ea7f7dfb1)
+
 
 
 
