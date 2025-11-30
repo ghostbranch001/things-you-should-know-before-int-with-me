@@ -27,6 +27,14 @@
 6  .  i'm a slow respond person so be patient with me when my status is away / busy ! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7f48da18-c2da-43ee-9468-d14b9e9adda9" />
 
 
+
+
+<img width="230" height="30" alt="image" src="https://github.com/user-attachments/assets/68ce09e4-e0ce-4888-91b9-52e784701208" />
+<img width="230" height="30" alt="image" src="https://github.com/user-attachments/assets/4b596a30-b78d-4af2-a46f-fa22108fd2e2" />
+<img width="230" height="30" alt="image" src="https://github.com/user-attachments/assets/c2b67654-0c1f-4f0e-acec-723502823fb3" />
+
+
+
 Things about me <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/415c7a05-8884-4f47-b12c-49eac24f1041" />
 
 
