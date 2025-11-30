@@ -1,6 +1,10 @@
 # things about me & before interact w me
 
-<img width="150" height="46" alt="image" src="https://github.com/user-attachments/assets/0c73b64c-2ed6-4b66-b78b-99059ca0183b" />
+
+
+<img width="150" height="46" alt="image" src="https://github.com/user-attachments/assets/0c73b64c-2ed6-4b66-b78b-99059ca0183b" /><img width="150" height="46" alt="image" src="https://github.com/user-attachments/assets/f99d063c-9706-4276-b33c-0a26bee2a314" />
+<img width="150" height="46" alt="image" src="https://github.com/user-attachments/assets/00777180-c833-47ae-8639-78b506ac8fec" />
+
 
 >> its june / juniper
 
