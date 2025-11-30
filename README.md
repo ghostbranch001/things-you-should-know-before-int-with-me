@@ -54,6 +54,9 @@ Things about me <img width="20" height="20" alt="image" src="https://github.com/
 
 6  .  Im a minor so please don't be weird. 
 
+7  .  i love to drawing and grinding ![a6931f90](https://github.com/user-attachments/assets/b16fb16d-c28f-4fe8-853f-a0cae1f5d797)
+ 
+
 
 
 
