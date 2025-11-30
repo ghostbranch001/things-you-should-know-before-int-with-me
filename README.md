@@ -1,4 +1,6 @@
 # things you should know before int me
+<img width="520" height="16" alt="image" src="https://github.com/user-attachments/assets/b0dd360a-65af-4a5b-88ac-87b22a0b8c21" />
+
 -  I will not interact with you when my name has dni/dniucf.
 -  I will interact with you when you talking with me polite  ( i said this because many people in idn server is not polite ofc its idn.. )
 -  free 2 c+h when there's no dni/dniucf in my name
