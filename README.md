@@ -5,10 +5,10 @@
 
 <img width="150" height="46" alt="image" src="https://github.com/user-attachments/assets/0c73b64c-2ed6-4b66-b78b-99059ca0183b" /><img width="150" height="46" alt="image" src="https://github.com/user-attachments/assets/74a2cdec-9365-4b8d-bff5-6d907c0a5931" />
 <img width="150" height="46" alt="image" src="https://github.com/user-attachments/assets/00777180-c833-47ae-8639-78b506ac8fec" /><img width="150" height="46" alt="image" src="https://github.com/user-attachments/assets/1b95c252-a12a-43bd-bfb2-13c0905e25f2" />
-<img width="150" height="46" alt="image" src="https://github.com/user-attachments/assets/067942c9-f237-4c29-b7fa-3aa41671ecf2" /><img width="150" height="46" alt="image" src="https://github.com/user-attachments/assets/1215d061-7554-41a9-bb11-8bfbb15ba5f8" />
+<img width="150" height="46" alt="image" src="https://github.com/user-attachments/assets/067942c9-f237-4c29-b7fa-3aa41671ecf2" />
 
 
-                                                                  its june / juniper
+                           its june / juniper
 
  things you should know before interact me .  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/a0816403-3c6e-4738-96e7-511fc9f684fc" />
 
@@ -49,15 +49,19 @@ Things about me <img width="20" height="20" alt="image" src="https://github.com/
 3  .  I love animals !!  especially cats <img width="46" height="20" alt="image" src="https://github.com/user-attachments/assets/9ce573c3-d0ed-41f9-bc7d-4da28258f558" />
 
 
-4  . i like some fictional character, sometimes man sometimes girl  ( IM STRAIGHT. i just like their design! )  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/52fc7c70-4a9b-48b3-8ba4-344c7f6902a6" />
+4  .  i like some fictional character, sometimes man sometimes girl  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/52fc7c70-4a9b-48b3-8ba4-344c7f6902a6" />
+
+5  .  I'm by they / them / it / its only ! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/701f6879-a36a-4076-8267-f2b84f3c2f55" />
+
 
 
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/0d4409b4-2478-4875-9692-ebb1f4a2e554" />
 
 
+ <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f4ac715f-cf6a-4f93-96f1-52e1f41dc8e7" />
 
-well then thank you ! <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f4ac715f-cf6a-4f93-96f1-52e1f41dc8e7" />
+ special thanks to my twin helped me with this  !  
 
 
 
