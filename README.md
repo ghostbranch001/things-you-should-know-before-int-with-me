@@ -12,7 +12,7 @@
 -   if my status away/busy please DO NOT interact ( unless you're my close-friend ) because i don't want to waste you guys time on waiting me
 -   i could be friendly and sensitive sometimes <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/bccdba9c-23bd-49d0-95f5-12df8799b2a3" />
 
--   im a slow respond so be patient but if im away please i say again DO NOT waste your time on me.
+-   im a slow respond so be patient but if im away please i say again DO NOT waste your time on me. because i could asleep or playing 
 -      >>  maybe that's all , thanks for lookin' at ts and goodluck ^ _ ^
 
 
