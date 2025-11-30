@@ -10,7 +10,6 @@
 
                                                                   its june / juniper
 
-  - <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/342797ed-6d7e-40b8-bd72-1dd234bd672a" />
  things you should know before interact me .  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/a0816403-3c6e-4738-96e7-511fc9f684fc" />
 
 
