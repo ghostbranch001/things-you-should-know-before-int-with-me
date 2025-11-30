@@ -52,8 +52,7 @@ Things about me <img width="20" height="20" alt="image" src="https://github.com/
 
 5  .  I'm by they / them / it only ! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/701f6879-a36a-4076-8267-f2b84f3c2f55" />
 
-6  .  Im a minor so please don't be weird. ![ee1d0068](https://github.com/user-attachments/assets/1dabeaa7-25d4-4371-8872-c93ea7f7dfb1)
-
+6  .  Im a minor so please don't be weird. 
 
 
 
@@ -63,7 +62,8 @@ Things about me <img width="20" height="20" alt="image" src="https://github.com/
 
  <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f4ac715f-cf6a-4f93-96f1-52e1f41dc8e7" />
 
- special thanks to my twin helped me with this  !  
+ special thanks to my twin helped me with this  !  ![ee1d0068](https://github.com/user-attachments/assets/1dabeaa7-25d4-4371-8872-c93ea7f7dfb1)
+
 
 
 
