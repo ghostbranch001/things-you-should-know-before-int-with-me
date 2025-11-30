@@ -8,7 +8,7 @@
 <img width="150" height="46" alt="image" src="https://github.com/user-attachments/assets/067942c9-f237-4c29-b7fa-3aa41671ecf2" />
 
 
-                                                                         its june / juniper
+                                                                  its june / juniper
 
 1  .  please do not interact me when my name has  >  Dni , Dniuf , Dniucf. <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/904a3bde-fc72-4966-bc6a-26edd0afb736" />
 
