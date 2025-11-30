@@ -21,4 +21,10 @@
 
 4  .  if you has sexualized pony PLEASE do not interact with me  ( this is targeted to idn server. ) because i'm not feel comfortable around it <img width="58" height="20" alt="image" src="https://github.com/user-attachments/assets/670abfdd-fcd1-4fd0-a953-9b18c9164e39" />
 
-5  .  
+
+5  .  please DO NOT spam whisp on me because it's ANNOYING. <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/1e0b0e08-a415-44f3-a787-4701f729548e" />
+
+
+
+6  .  i'm a slow respond person so be patient with me when my status is away / busy ! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7f48da18-c2da-43ee-9468-d14b9e9adda9" />
+
