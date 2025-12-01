@@ -42,7 +42,7 @@ Things about me <img width="20" height="20" alt="image" src="https://github.com/
 1  . I have social anxiety sometimes <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/58ac7f25-e176-4510-adf7-1992aaa691d6" /><img width="18" height="18" alt="image" src="https://github.com/user-attachments/assets/4921ee9e-7576-4c1d-be6d-4259bca31f03" />
 
 
-2  .  I don't really like my real life friends , they're sh!t <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/976064b1-8d9f-44d0-9715-9fdb22ee1c2f" />
+2  .  I don't really like my real life friends , they're make me feel disgusted by myself and they ignored me A LOT for no reason <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/976064b1-8d9f-44d0-9715-9fdb22ee1c2f" />
 
 
 3  .  I love animals !!  especially cats <img width="46" height="20" alt="image" src="https://github.com/user-attachments/assets/9ce573c3-d0ed-41f9-bc7d-4da28258f558" />
